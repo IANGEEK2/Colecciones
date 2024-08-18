@@ -1,0 +1,2 @@
+# Colecciones
+Página sobre coleccionismo 
